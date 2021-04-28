@@ -1,0 +1,2 @@
+# edutecno
+Curso sence
